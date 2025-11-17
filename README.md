@@ -1,0 +1,1 @@
+# Kaiizen-ficha-tecnica-4
